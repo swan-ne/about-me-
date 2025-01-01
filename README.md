@@ -17,3 +17,4 @@ ______
 - basic DNI criteria (proshippers, p*dos, etc)
 - anyone who copies my characters and unwilling to change it.
 - sexualizes me or characters i cosplay as. 
+- drama starters. keep me out of it. 

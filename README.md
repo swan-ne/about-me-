@@ -4,7 +4,7 @@ hello !! just a small idea of me if you're willing to read.
 
 i am very open to talking and making friends with anyone! if you'd like to chat w2i, i may not see your message sadly.
 
-you're also welcome to sit/cuddle by me anytime! you can vent to me as well.
+you're also welcome to sit/cuddle by me anytime! you can vent to me as well just as long as you whisper.
 
 BYF ::
 ____
